@@ -1,6 +1,6 @@
 # Sunrise on the Reaping PDF Download
 
-![Sunrise on the Reaping PDF Download](https://img.youtube.com/vi/YsK-PBn23S0/maxresdefault.jpg)
+![Sunrise on the Reaping PDF Download](https://i.ytimg.com/vi/JF6_k1Nrb7k/hq720.jpg?sqp=-oaymwEhCK4FEIIDSFryq4qpAxMIARUAAAAAGAElAADIQj0AgKJD&rs=AOn4CLBD-qs_7FCDFFkYc0rwajqWSLjkZg)
 
 ## Introduction to Sunrise on the Reaping PDF Download
 
